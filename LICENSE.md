@@ -1,4 +1,4 @@
-# 
+# نخبة OKX bot التداول امتدادات for Mac OS | مميز OKX bot التداول امتدادات for PC Windows. Featuring استراتيجية العودة إلى المتوسط and مجموعات السيولة DEX — optimized for maximum performance.
 
 
 
